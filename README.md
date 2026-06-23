@@ -1,1 +1,2 @@
-# Naturals-Ice-Cream-Project
+( Naturals_Ice_Cream_Project_Report.pdf) A Study on Naturals Ice Cream: Bhatkal Outlet - A detailed retail business analysis and marketing case study evaluating the operational success, consumer behavior, and market strategy of the Naturals Ice Cream franchise outlet in Bhatkal, Karnataka
+Author: Vedant K Naik, Institution: Bhandarkars' Arts and Science College, Kundapura (Affiliated with Mangalore University), Course: Bachelor of Business Administration (BBA), Guide: Mr. Prashanth S Hegde, Lecturer 
